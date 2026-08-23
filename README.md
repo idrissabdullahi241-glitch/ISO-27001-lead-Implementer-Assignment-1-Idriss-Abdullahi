@@ -1,0 +1,1 @@
+# ISO-27001-lead-Implementer-Assignment-1-Idriss-Abdullahi
